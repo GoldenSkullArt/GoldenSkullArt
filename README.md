@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GoldenSkullArt
+- 👀 I’m a Freelance Lead Artist and Art Director for 2D and 3D
+- 🌱 I’m focussing on hand-painted, vibrant, vivid and colorful styles.
+- 💞️ My style is very cartoony, similar to WoW and other handpainted styles.
+- 📫 If you are interested in working with me, reach me via "maxheyderart@gmail.com"
